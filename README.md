@@ -1,2 +1,2 @@
 # miniature-parakeet
-https//:mazherkhan-w7y
+https//:mazherkhan-w7y.com
